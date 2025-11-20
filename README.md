@@ -1,6 +1,7 @@
 # Paco Ramírez
 Software Developer  
 paco.ramirez.romero@gmail.com  
+www.linkedin.com/in/paco-ramírez-romero-90042b391  
 Málaga (Spain)  
 
 ## PROFILE
